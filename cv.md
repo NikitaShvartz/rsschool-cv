@@ -23,7 +23,7 @@ He worked in different fields: in the oil sector, in sales, and even worked in a
 I'm temporarily putting a dash here -
 
 ### Education
-Oil sector
+ Oil sector
 
 ### English language
 (А2)
