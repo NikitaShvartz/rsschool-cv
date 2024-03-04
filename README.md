@@ -1,4 +1,5 @@
 # rsschool-cv
-https://github.com/NikitaShvartz/rsschool-cv/blob/main/cv.md
+https://Nikita Shvartz.github.io/rsschool-cv/
+
 
 
