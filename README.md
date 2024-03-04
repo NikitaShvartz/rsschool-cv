@@ -1,5 +1,5 @@
 # rsschool-cv
-https://Nikita Shvartz.github.io/rsschool-cv/
+https://NikitaShvartz.github.io/rsschool-cv/
 
 
 
